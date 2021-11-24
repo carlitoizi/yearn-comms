@@ -16,6 +16,8 @@ original source: [twitter](https://twitter.com/iearnfinance/status/1432387438014
 
 [Atlantis World](https://twitter.com/atlantis0x) is a Web3 metaverse designed to expand access to virtual worlds, a 2d pixelverse that doesn't require expensive tech but will still melt faces.
 
+[Atlantis World](https://twitter.com/atlantis0x) est un Metaverse Web 3 ... 
+
 ![](image2.jpg)
 
 ##### 2
